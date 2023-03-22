@@ -1,3 +1,5 @@
+# **Bach: The Goldberg Variations (Glenn Gould)**
+
 ![Cover](https://i.pinimg.com/originals/70/e5/ba/70e5ba714aea178767d1ef0aa58fd7f8.jpg)
 
 # 1.Intro
@@ -8,7 +10,7 @@ Bach: The Goldberg Variations is the debut album of Canadian classical pianist G
 ## (also from Wikipedia)
 At the time of the first album's release, Bach's Goldberg Variations—a set of 30 contrapuntal variations beginning and ending with an aria—were outside the standard piano repertoire, having been recorded on the instrument only a few times before, either on small labels or unreleased.[n 1] The work was considered esoteric and technically demanding, requiring awkward hand crossing at times when played on a piano (these passages would be played on two manuals on a harpsichord). Gould's album both established the Goldberg Variations within the contemporary classical repertoire and made him an internationally famous pianist nearly "overnight". First played in concert by Gould in 1954, the composition was a staple of Gould's performances in the years following the recording.
 
-# 3.Is Gould high ? A commentary by a top musicologist of our modern times.
-## That is, me.
-### The musicologist, not Gould. I also feel I should say for clarity that I am not a commentary, and I am not high either ~~or only a little bit~~
-On a more personal note this album is quite dope, despite Gould's persistent humming. You might think he is high on something but if he were he probably would not have such a clear and articulated way of playing. At least I hope he was sober, imagine if the dude could play like that while being on weed, it's already depressing enough to listen to him if you're insecure about your piano skills. Or perhaps he unlocks such unparalelled skills only after consuming psychotropic substances. Kind of like Rock Lee in Naruto. I like Naruto.
+# 3.Was Gould high ? A commentary by a top musicologist of our modern times.
+## That is, me. The musicologist, not Gould. 
+### I also feel I should say for clarity that I am not a commentary, and I am not high either ~~or only a little bit~~
+On a more personal note this album is quite dope, despite Gould's persistent humming. You might think he is high on something but if he were he probably would not have such a clear and articulated way of playing. At least I hope he was sober, imagine if the dude could play like that while being on weed, it's already depressing enough to listen to him if you're insecure about your piano skills. Or perhaps he unlocks such unparalelled keyboard-binding powers only after consuming psychotropic substances. Kind of like Rock Lee in Naruto. I like Naruto.
