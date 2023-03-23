@@ -12,3 +12,5 @@ It's an exercise for a Git class I followed in 2023.
 
 > "What's a Git class ?"
 > -- Your elderly family member, probably.
+
+Another line bites the dust.
